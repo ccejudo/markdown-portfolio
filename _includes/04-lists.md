@@ -1,0 +1,3 @@
+- Surf 🏄
+- Food 🍔
+- Working Out 🏃
